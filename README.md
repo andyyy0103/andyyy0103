@@ -1,6 +1,6 @@
 **_Infos!_**
 
-         ˙⋆✮  🐗 
+ ˙⋆✮  🐗 
 
 _andrea .  andy.  call me with characters names I am on.   /   Jan 3.   /   she/her/they/them pronouns._
 *₊
@@ -16,4 +16,4 @@ _If you see me in Pony Town, you can freely come to me if I don't have my name n
 
 **_Favs:_** _good friend who trusts, my bsf, horror movies, tommyinnit, mom jeans, benson boone, radiohead, painting, graphic designs, baggy clothes, matching pfps, dexter, Niners, SnC, JnJ, and volkwages beetles._
 
-      ﹌﹌﹌﹌﹌﹌⁺˚⋆｡°✩₊✩°｡⋆˚⁺⁺˚⋆｡°✩₊✩°｡⋆˚⁺⁺˚⋆｡°✩₊✩°｡⋆˚⁺﹌﹌﹌﹌﹌﹌
+  ﹌﹌﹌﹌﹌﹌⁺˚⋆｡°✩₊✩°｡⋆˚⁺⁺˚⋆｡°✩₊✩°｡⋆˚⁺⁺˚⋆｡°✩₊✩°｡⋆˚⁺﹌﹌﹌﹌﹌﹌
