@@ -12,7 +12,7 @@ _If you see me in Pony Town, you can freely come to me if I don't have my name n
 
 ![Image](https://github.com/user-attachments/assets/ac8f9494-5da2-4c4d-b41f-aa0312170882)
 
-**_DNI:_** _proshippers, trolls, jokes, fake friends, threats, and drama. I do not like people who spam the boops me. I take threats and jokes very seriously. I do not like them. You have to respect me.
+**_DNI:_** _proshippers, trolls, jokes, fake friends, threats, and drama. I do not like people who spam the boops me. I take threats and jokes very seriously. I do not like them. You have to respect me._
 
 **_Fandoms:_** _dsmp, fnaf, marvel, dc, naruto, minecraft, jurassic park, hazbin hotel, creepypasta, it, jurassic world, bendy, tattletail, and south park._
 
