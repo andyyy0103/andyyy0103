@@ -4,6 +4,8 @@
 
 _andrea .   andy.   call me with characters names I am on.   /   Jan 3.   /   she/her/they/them pronouns._
 
+**_18!_**   _I am fine with young people, and I do not do anything bad towards them. I do not accept anyone younger than me who likes to do something sexual. I am not a P3d0. That's messed up and easily grosses me out if I see it in general. I am not interested in any relationships._
+
 *₊
 *₊
 *₊
