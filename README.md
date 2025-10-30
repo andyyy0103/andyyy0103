@@ -1,6 +1,6 @@
 **_Infos!_**
 
- ˙⋆✮  🐗 
+ ˙⋆✮   🩵
 
 _andrea .   andy.   call me with characters names I am on.   /   Jan 3.   /   she/her/they/them pronouns._
 
