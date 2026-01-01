@@ -14,7 +14,7 @@ _If you see me in Pony Town, you can freely come to me if I don't have my name n
 
 ![Image](https://github.com/user-attachments/assets/d98d25f5-cd94-4954-a44c-e0f614f08ee5)
 
-**_DNI:_** _proshippers, trolls, jokes, fake friends, threats, and drama._
+**_DNI:_** _proshippers, trolls, jokes, fake friends, threats, drama. There's one thing! I do not like to see really bright looking colors on your ponies since it hurts my eyes._
 
 **_Fandoms:_** _dsmp, fnaf, marvel, dc, naruto, minecraft, jurassic park, hazbin hotel, creepypasta, it, jurassic world, bendy, tattletail, and south park._
 
